@@ -1,1 +1,2 @@
-# nasaki-ddos
+# Hatoki-leak
+Fuck Leak HaToKi exe :)
