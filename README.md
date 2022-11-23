@@ -1,2 +1,2 @@
-# Hatoki-leak
-Fuck Leak HaToKi exe :)
+# NASAKI
+Fuck you bitch :)
